@@ -1,1 +1,1 @@
-NESE activities
+Highlight on NESE activities
